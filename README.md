@@ -1,0 +1,2 @@
+# Vyjmenovaná Slova Cheat-Sheet
+
